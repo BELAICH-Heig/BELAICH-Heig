@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BELAICH-Heig or am I?
-- 👀 I’m interested in nothing because I made sad person.
+- 👀 I’m interested in nothing because I am a sad person.
 - 🌱 I’m currently learning how to be an even sadder person.
 - 💞️ I’m looking to collaborate on killing myself.
 - 📫 How to reach me: don't... just don't.
